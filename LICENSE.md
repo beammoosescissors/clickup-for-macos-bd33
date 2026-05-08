@@ -1,4 +1,4 @@
-
+exclusive ClickUp for macOS Integration | note encryption + reminders offers the most advanced ClickUp for macOS integration, with note encryption and reminders. Ideal for
 
 
 
